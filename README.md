@@ -1,1 +1,1 @@
-I literally cannot code.
+I literally don't know how to code.
